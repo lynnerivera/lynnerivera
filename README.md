@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lynnerivera
-- 👀 I’m interested in learning
+- 👀 I’m interested in adding a Media Endorsement to my teaching certificate
 - 🌱 I’m currently learning INF 6420
 - 💞️ I’m looking to collaborate on my Wix website
 - 📫 How to reach me by email: rivera.lynne@gmail.com
